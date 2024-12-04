@@ -1,1 +1,1 @@
-New high expected Dover 1028 expected 0600 tomorrow.
+New high expected Dover 1028 at 0600 tomorrow.
